@@ -1,1 +1,1 @@
-# darbi_10.b
+pdmajaslapa
